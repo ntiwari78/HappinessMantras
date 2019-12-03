@@ -6,3 +6,11 @@ https://ideas.ted.com/books-to-help-you-answer-big-questions-about-yourself/
 
 https://ideas.ted.com/books-worth-reading-this-holiday-recommended-by-bill-gates-susan-cain-and-more/
 
+https://ideas.ted.com/gift-guide-books-about-business-and-professional-growth/
+
+https://ideas.ted.com/what-should-you-read-this-summer-a-mega-reading-list/
+
+https://ideas.ted.com/gift-guide-psychology-philosophy-and-self-help-books/
+
+https://ideas.ted.com/a-speed-reader-shares-3-tricks-to-help-anyone-read-faster/
+
