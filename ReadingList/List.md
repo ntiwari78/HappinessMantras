@@ -1,3 +1,6 @@
+#### Personality Type
+https://www.everythingdisc.com/EverythingDisc/media/Everything-DiSC-Sample-Reports/Everything-DiSC-Work-of-Leaders%C2%AE-Profile-2416.pdf
+
 https://ideas.ted.com/whats-the-worst-kind-of-praise-you-can-give
 
 https://ideas.ted.com/the-happy-secret-to-better-work-a-reading-list/
